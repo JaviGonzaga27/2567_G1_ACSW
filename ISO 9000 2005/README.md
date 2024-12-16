@@ -1,0 +1,2 @@
+# 2567_G1_ACSW
+#link del miro donde se hizo el esquema: https://miro.com/welcomeonboard/TDlXZlVQb21nMnhBSUZtN2lLb1kzbk9BSHBCWXU2WmJzaGVicjVDdmorWFQvSERlNTRXL1poRk9nTkkvUCszV0Nqd2x5SjNqc0tOY3FXVDlzVUxlSUdpRGF4SURiSVpBdGhjRGxzaHZRZTF6K0J4cW8yREZlTng4OVdhUXdRV2ohZQ==?share_link_id=380650480815
